@@ -8,3 +8,6 @@ https://www.loom.com/share/c514a6d880ed44f4bd4a27a0778ecc4e?sid=38447c80-a876-4b
 
 ML- ICP-3
 https://www.loom.com/share/8e8f99c38f934020920f770d7dfe9ff0?sid=c9ebf68b-6c55-4389-b505-549df5ad1225
+
+ML- Assignment-1
+https://www.loom.com/share/c40117a0ef384f4ca1062d15024c7f40?sid=a12242da-716e-4d4c-8422-d71020a3548a
